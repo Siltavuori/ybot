@@ -1,0 +1,1 @@
+made it cuz i was bored doesnt even have methods you can just put bunch of ass apis together to get 282mb/min power! (didnt even test it) for legal reasons dont use this for malicious purposes i dont take responsibility of anything you do with this software and it comes with no warranty included
